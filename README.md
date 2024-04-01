@@ -1,5 +1,5 @@
-# Jamie Bond, Innovation and Transformation Leader
-> Delivering Innovation, Transformative Insights and Sustainable Impacts | Changemaker, Facilitator, Agenda Shaper & Disruption Navigator | Voracious Learner who Quickly Adapts, Bridges Gaps and Herds Cats
+#  ♟️STRATEGY♟️| 💡INNOVATION💡 | 🌀 TRANSFORMATION 🌀 
+> _Delivering Strategy, Innovation, Transformation, Insights and Sustainable Impacts ▪️ Changemaker, Facilitator, Agenda Shaper & Disruption Navigator ▪️ Voracious Learner who Quickly Adapts, Bridges Gaps and Herds Cats_
 
 ## :small_red_triangle_down: Who I am
 * A relentless seeker of clarity around fundamental motivations, incentives mechanisms, individual priorities, pain points and barriers to success.
