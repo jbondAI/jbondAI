@@ -20,7 +20,7 @@
 * Endless enthusiasm for acquiring new skills and sharing knowledge
 
 
-## :small_red_triangle_down: More about me
+## :small_red_triangle_down: Professional Capabilities
 #### :sparkle: _PROFESSIONAL EXPERIENCE_  :sparkle:
 * Sustainability and climate action planning
 * ESG risk assessment and disclosures
@@ -34,8 +34,8 @@
 * Start-up and small business operations
 * AI tools and technology development
 
-#### :eight_pointed_black_star: _AREAS OF MASTERY_ :eight_pointed_black_star:
-* Scenario planning
+#### :eight_pointed_black_star: _DOMAIN MASTERY_ :eight_pointed_black_star:
+* Tranformation planning
 * Risk assessment
 * Interdisciplinary stakeholder engagement and collaboration management
 * Programs and projects (program design, program and project management, change management
