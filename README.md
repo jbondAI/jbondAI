@@ -13,7 +13,7 @@
 * Develop strategies, design programs, integrate technologies and drive initiatives that yield measurable impacts ⭐
 * Focus on shifting political and market landscapes, available funding mechanisms, equitable outcomes, strategic partnership opportunities and transition pathways for the broader workforce 🏆
 
-## :small_red_triangle_down: Where I shine
+## :small_red_triangle_down: Where I thrive
 * Estute in identifying improvment opportunites for operating models, tools and technologies, policies and processes
 * Adept at socializing and implementing transformative strategies
 * Recognized for my abilities to connect disparate ideas and communicate complex concepts for 'USA Today audiences'
