@@ -45,10 +45,10 @@
 * Pinch-hitting ... and one hell of a cat herder :black_cat: :cat2: :black_cat: :cat2:
 
 ## :small_red_triangle_down: CONNECTING
-* Email me at (jamie.L.Bond@outlook.com) :incoming_envelope: <br>
-* Connect with me on [LinkedIn](www.linkedin.com/in/jamielbond) :arrow_left:<br>
-* Follow me on [GitHub](github.com/jbondAI) :octocat: <br>
-* Visit [Navigating Grey](navigating-grey.com) :desktop_computer: <br>
+* Email at (jamie.L.Bond@outlook.com) :incoming_envelope: <br>
+* Connect on [LinkedIn](http://www.linkedin.com/in/jamielbond) :arrow_left:<br>
+* Explore through [GitHub](http://github.com/jbondAI) :octocat: <br>
+* Partner via [Navigating Grey](http://www.navigating-grey.com) :desktop_computer: <br>
 
 
 <!---
