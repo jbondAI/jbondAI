@@ -1,4 +1,4 @@
-#  Resilience Strategies, Megatrends Readiness and Innovation Plannning
+#  Megatrends Readiness, Resilience Strategies, Innovation Plannning and Sustainable Operations
 > _Delivering Strategy, Innovation, Transformation, Insights and Sustainable Impacts ▪️ Changemaker, Facilitator, Agenda Shaper & Disruption Navigator ▪️ Voracious Learner who Quickly Adapts, Bridges Gaps and Herds Cats_
 
 ## :small_red_triangle_down: BEING
