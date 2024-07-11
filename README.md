@@ -21,7 +21,7 @@
 
 
 ## :small_red_triangle_down:Showcasing
-#### _PROFESSIONAL EXPERIENCE_
+#### _DOMAIN EXPERIENCE_
 * Sustainability and climate action planning
 * ESG risk assessment and disclosures
 * Decarbonization measures
@@ -34,12 +34,13 @@
 * Start-up and small business operations
 * AI tools and technology development
 
-####  _DOMAIN MASTERY_
-* Tranformation planning
-* Risk assessment
-* Interdisciplinary stakeholder engagement and collaboration management
-* Programs and projects (program design, program and project management, change management
-* Ideation and innovation and ideation, creating order from chaos
+####  _AREAS OF MASTERY_
+* Innovation and ideation
+* Tranformational strategy and planning
+* Risk identification and strategic mitigation
+* Stakeholder engagement and collaboration management
+* All things programs, projects and inititives (design, implementation, performance and change management)
+* Creating order from chaos
 * Pinch-hitting ... and one hell of a cat herder :black_cat: :cat2: :black_cat: :cat2:
 
 ## :small_red_triangle_down: Connecting
